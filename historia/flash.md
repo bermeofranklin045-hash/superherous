@@ -2,7 +2,12 @@ Flash (conocido también como The Flash y traducido en español: El Destello) es
 
 Hasta ahora, al menos cuatro personajes diferentes, cada uno de los cuales de alguna manera obtuvo el poder de "la Fuerza de la Velocidad", ha
 
-n asumido el papel de Flash en las historias de DC: el atleta universitario Jay Garrick siendo el primero en portar el título (1940-1951, 1961-2011, 2017-presente ), el científico forense Barry Allen (1956-1985, 2008-presente), el sobrino de Barry Wally West (1986-2011, 2016-presente) y el nieto de Barry Bart Allen (2006-2007). Cada encarnación de Flash ha sido un miembro clave de al menos uno de los principales equipos de DC: Sociedad de la Justicia de América, Liga de la Justicia de América, Los Jóvenes Titanes y Young Justice. Wally West y Bart Allen originalmente fueron conocidos como Kid Flash, posteriormente asumieron el manto de Flash (Bart también era conocido como Impulso).
+n
+
+asumido el papel de Flash en las historias de DC: el atleta
+
+
+universitario Jay Garrick siendo el primero en portar el título (1940-1951, 1961-2011, 2017-presente ), el científico forense Barry Allen (1956-1985, 2008-presente), el sobrino de Barry Wally West (1986-2011, 2016-presente) y el nieto de Barry Bart Allen (2006-2007). Cada encarnación de Flash ha sido un miembro clave de al menos uno de los principales equipos de DC: Sociedad de la Justicia de América, Liga de la Justicia de América, Los Jóvenes Titanes y Young Justice. Wally West y Bart Allen originalmente fueron conocidos como Kid Flash, posteriormente asumieron el manto de Flash (Bart también era conocido como Impulso).
 
 Se creía que West era el único que sabía dominar la fuerza de la velocidad, pero actualmente Barry Allen y otros personajes que 
 han adquirido “la fuerza de velocidad” han demostrado cierto nivel de poder y control sobre esta.[2][3]
@@ -11,7 +16,11 @@ The Flash es uno de los personajes más populares de DC Comics y ha sido parte i
 
 Al igual que sus compañeros de la Liga de la Justicia Mujer Maravilla (Wonder Woman), Superman y Batman, Flash tiene un elenco distintivo de adversarios, incluidos los diversos Renegados (únicos entre los supervillanos de DC por su código de honor) comandados por Capitán Frío y los diversos "velocistas" psicópatas que se conocen con el nombre "Flash Reverso" o "Zoom", o el Supervillano Gorilla Grodd como uno de los villanos más importantes de Flash.[4] Otros personajes secundarios en las historias de Flash incluyen a la esposa de Barry, Iris West, la esposa de Wally, Linda Park, la novia de Bart, Valerie Perez, el compañero velocista Max Mercury y los miembros del departamento de policía de Ciudad Central, David Singh y Patty Spivot.
 
-Como uno de los personajes básicos de los cómics del Universo DC, Flash se ha adaptado a numerosas películas de DC, videojuegos, series animadas y programas de televisión en vivo. En acción real, Barry Allen ha sido retratado por Rod Haase para el especial de televisión de 1979 Legends of the Superheroes, John Wesley Shipp en la serie The Flash de 1990 y Grant Gustin en la serie de 2014 The Flash, y por Ezra Miller en la serie de películas del Universo extendido de DC, comenzando con Batman v Superman: Dawn of Justice (2016), continuando con la Liga de la Justicia (2017), la versión de Liga de la Justicia de Zack Snyder (2021) y The Flash (2023). John Wesley Shipp también interpreta una versión de Jay Garrick en la serie The Flash 2014. Las diversas encarnaciones de Flash también aparecen en series animadas como Superman: la serie animada de 1992, Liga de la Justicia de 2001, Batman: The Brave and the Bold de 2008 
+Como uno de los personajes básicos de los cómics del Universo DC, Flash se ha adaptado a numerosas películas de DC
+
+
+
+, videojuegos, series animadas y programas de televisión en vivo. En acción real, Barry Allen ha sido retratado por Rod Haase para el especial de televisión de 1979 Legends of the Superheroes, John Wesley Shipp en la serie The Flash de 1990 y Grant Gustin en la serie de 2014 The Flash, y por Ezra Miller en la serie de películas del Universo extendido de DC, comenzando con Batman v Superman: Dawn of Justice (2016), continuando con la Liga de la Justicia (2017), la versión de Liga de la Justicia de Zack Snyder (2021) y The Flash (2023). John Wesley Shipp también interpreta una versión de Jay Garrick en la serie The Flash 2014. Las diversas encarnaciones de Flash también aparecen en series animadas como Superman: la serie animada de 1992, Liga de la Justicia de 2001, Batman: The Brave and the Bold de 2008 
 
 
 y Young Justice de 2010, así como en la serie de Películas animadas originales del Universo DC.
